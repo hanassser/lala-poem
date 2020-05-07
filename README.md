@@ -17,7 +17,14 @@ il n'y a aucune nostalgie ici.
 
 
 
-
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
 
 L'évasion est une illusion,
 L'illusion est un jeu,
@@ -26,7 +33,14 @@ La prochaine fois, avant de me réveiller, j'ai décidé de ne plus jouer.
 
 
 
-
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
 
 
 Soudain, j'ai senti le vent dans la forêt, partout.
@@ -36,7 +50,14 @@ les mots mystérieux de l’esprit.
 Huh——————
 
 
-
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
 
 
 Pourquoi tout n'a-t-il pas disparu?
@@ -44,7 +65,14 @@ Parce que chaque fois c'est une nouvelle expérience.
 
 
 
-
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
 
 
 Attends un jour
@@ -60,7 +88,14 @@ Je t'aime comme la vie
 
 
 
-
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
 
 Comment puis-je te faire croire,
 Cette nuit,
@@ -84,7 +119,14 @@ Tu es assis à côté de moi,
 Mais je sens que tu es si loin de moi.
 
 
-
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
 
 
 
@@ -101,14 +143,28 @@ quand le coeur est vide, il sera sans limites.
 
 
 
-
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
 
 
 S'il n'y a pas d'imagination, s'il n'y a pas d'état de conscience changeant.
 Il n'y a pas vraiment de "demain" dans notre "aujourd'hui".
 
 
-
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
 
 
 
