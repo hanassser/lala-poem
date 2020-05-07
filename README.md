@@ -1,2 +1,2 @@
 # my-sixu
-random sixu wode
+random poem
